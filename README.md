@@ -66,8 +66,8 @@ $\Large\color{#f00}{\textsf{I love mr puzzle and Tenna okay}}$ <br>
 <br>
      <br>
 
-$\color{#f00}{\textsf{lowkey need ao3 fanfictions.if you have one, slide me one in discord @flickedstarcrows...thank you👀}}$ <br>
-
+$\color{#f00}{\textsf{lowkey need ao3 fanfictions}}$ <br>
+$\color{#f00}{\textsf{if you have one, slide me in discord @flickedstarcrows.thank you👀}}$ <br>
 
 
 
