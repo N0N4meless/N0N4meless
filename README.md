@@ -51,4 +51,4 @@
 <br>
      <br>
 
-$${\color{#602f2f} Mr-puzzle-and-Tenna-Are-my-fav-okay? }$$ <br>
+$$\Large\color#602f2f}{\textsf{Mr Puzzle and Tenna are my fav okay..?}}$$ <br>
