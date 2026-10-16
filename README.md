@@ -57,7 +57,9 @@ $\Large\color{#f00}{\textsf{I love mr puzzle and Tenna okay}}$ <br>
 <br>
 <br>
 
-<img align="left" src="https://64.media.tumblr.com/1c5fea5ebec0607a4a478ff0e1d791cb/91cc3fbac2e60f18-71/s1280x1920/65c3ca2ade2d58c89fb4341a693aeed20f89d07b.pnj" alt="placeholder" width="400" />
+
+   
+<img align="right" src="https://64.media.tumblr.com/1c5fea5ebec0607a4a478ff0e1d791cb/91cc3fbac2e60f18-71/s1280x1920/65c3ca2ade2d58c89fb4341a693aeed20f89d07b.pnj" alt="placeholder" width="400" />
 <p align="center">
    <br>
      <br>
@@ -68,7 +70,6 @@ $\Large\color{#f00}{\textsf{I love mr puzzle and Tenna okay}}$ <br>
 
 $\color{#f00}{\textsf{lowkey need ao3 fanfictions}}$ <br>
 $\color{#f00}{\textsf{if you have one, slide me in discord @flickedstarcrows.thank you👀}}$ <br>
-
 
 
 <p align="center">
