@@ -13,7 +13,7 @@
      <br>
 
 "Action or whatever.."
--him probably
+-him probably (later will include starwpage)
 
 
 
@@ -52,7 +52,7 @@
 <br>
      <br>
 
-$\Large\color{#f00}{\textsf{I love mr puzzle and Tenna okay}}$ <br>
+$\Large\color{#f00}{\textsf{YumeShipping with DF! tenna... im fine with doubles}}$ <br>
 
 <br>
 <br>
