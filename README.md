@@ -52,7 +52,8 @@
 <br>
      <br>
 
-$\Large\color{#f00}{\textsf{YumeShipping with DF! tenna... im fine with doubles}}$ <br>
+$\Large\color{#f00}{\textsf{YumeShipping with DF! tenna}}$ <br>
+$\Large\color{#f00}{\textsf{im fine with doubles}}$ <br>
 
 <br>
 <br>
